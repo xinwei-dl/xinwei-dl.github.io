@@ -3,4 +3,4 @@
   
   
   
-👩‍💻 Hi there! I am Xinwei. I am a senior student majoring in GIS, and I'm currently applying for master in DS.
+👩‍💻 Hi there! I am Xinwei. I am a first-year graduate student major in DS.
